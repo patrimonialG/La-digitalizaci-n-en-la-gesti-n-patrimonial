@@ -1,1 +1,2 @@
 # La-digitalizaci-n-en-la-gesti-n-patrimonial
+El impacto de la era digital ha transformado la gestión de patrimonios. Con la integración de la inteligencia artificial y plataformas digitales, la planificación financiera se ha democratizado, permitiendo acceso masivo y personalización. Los inversores y asesores ahora navegan un mundo donde la eficiencia se combina con las nuevas tecnologías, y la competencia se basa en el rápido acceso a datos de mercado. La ciberseguridad y el toque humano, sin embargo, siguen siendo esenciales.
